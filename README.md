@@ -14,6 +14,6 @@
 
 ---
 
-2021.09.14 전체 발표 및 결과 !! 👏👏
+2021.09.14 전체 발표 및 결과 !! 👏👏 우수상 수상
 
-![스크린샷 2021-09-15 오후 1.50.43](/Users/user/Library/Application Support/typora-user-images/스크린샷 2021-09-15 오후 1.50.43.png)
+<img src="/Users/user/Library/Application Support/typora-user-images/스크린샷 2021-09-15 오후 1.50.43.png" alt="우수상 상장" style="zoom:50%;" />
